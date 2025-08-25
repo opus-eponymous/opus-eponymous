@@ -2,7 +2,7 @@
                                       
                                        [strawpage](https://praise-the-lamb.straw.page/)
 
-                                       [ponytown infp](https://praise-the-goat.straw.page/)
+                                       [ponytown info](https://praise-the-goat.straw.page/)
 
                                        [atabook](https://infestissumam.atabook.org/)
 
