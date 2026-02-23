@@ -1,6 +1,8 @@
+[@vvylan-van-eck](https://github.com/vvylan-van-eck) [@HADESTOVVN](https://github.com/HADESTOVVN)
+
 <p align="center">
 	
-                            <sup><sub>[strawpage](https://wylan-van-eck.straw.page/)</sub></sup> , <sup><sub>[rentry](https://rentry.co/hadestovvn)</sub></sup> , <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> , <sup><sub>[prns.page](https://en.pronouns.page/@lalaorpheus)</sub>
+<sup><sub>[strawpage](https://wylan-van-eck.straw.page/)</sub></sup> , <sup><sub>[rentry](https://rentry.co/hadestovvn)</sub></sup> , <sup><sub>[atabook](https://hadestown.atabook.org/)</sub></sup> , <sup><sub>[prns.page](https://en.pronouns.page/@lalaorpheus)</sub>
 
 </p>
 <p align="center">
