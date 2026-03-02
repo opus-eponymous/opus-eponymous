@@ -1,4 +1,4 @@
-[@next-to-normal](https://github.com/next-to-normal) [@HADESTOVVN](https://github.com/HADESTOVVN) [@praise-the-lamb](https://github.com/praise-the-lamb)
+[@next-to-normal](https://github.com/next-to-normal) [@HADESTOVVN](https://github.com/HADESTOVVN) [@wylan-hendriks](https://github.com/wylan-hendriks)
 
 <p align="center">
 	
