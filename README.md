@@ -1,6 +1,6 @@
 <p align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-opus-eponymous&color=lightgrey)
+![](https://komarev.com/ghpvc/?username=your-github-opus-eponymous&color=grey)
 
 </p>
 
